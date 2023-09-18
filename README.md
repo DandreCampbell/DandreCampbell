@@ -1,4 +1,4 @@
-## Software Developer 👋
+## Software Developer 💻
 
 ### Based in New York
 
